@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://images.app.goo.gl/YUz96ahVjPooPn1h8"  />
+<img align="right" height="150" src="https://images.app.goo.gl/YUz96ahVjPooPn1h8](http://malta-web-design.com/service-view/web-development/)"  />
 
 ###
 
